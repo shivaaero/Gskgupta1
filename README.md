@@ -35,4 +35,4 @@ Mr. Shiva Krishna Profile
 
 ## 📫 Connect With Me
 - LinkedIn:(https://www.linkedin.com/in/gskgupta1/)
-- Email: (shivakrishna.Aero@gmail.com)
+- Email: (shivakrishna.aero@gmail.com)
